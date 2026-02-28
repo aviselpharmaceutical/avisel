@@ -1,0 +1,1 @@
+Avisel Pharmaceutical Private Limited is a private company incorporated on May 29, 2025, in Uttarakhand, India, with its registered office in Dehradun (H No 3, Sinaula Enclave, Johri Goan Road). Avinash Singh is listed as a director of the company. The company operates under the classification of wholesale trade, registered with the CIN U46497UT2025PTC019316.
